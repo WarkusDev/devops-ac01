@@ -1,3 +1,9 @@
 # devops-aula02
 Segunda aula de DevOps
-FAROFA
+
+Asa Akira
+Silvia Saint
+Sasha Grey
+Peter North
+Mel Gibson
+Tolete Demierda
