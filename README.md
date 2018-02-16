@@ -2,8 +2,9 @@
 Segunda aula de DevOps
 
 Asa Akira
-Silvia Saint
+Jade Kush
 Sasha Grey
 Peter North
 Mel Gibson
 Tolete Demierda
+Jacinto Opeludo
